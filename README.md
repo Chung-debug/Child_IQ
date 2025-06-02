@@ -1,0 +1,1 @@
+Due to mythical beliefs, this analysis that proves that children do not inherit intelligence from their mothers
